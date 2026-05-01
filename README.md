@@ -1,1 +1,0 @@
-# selcomak5uxi
